@@ -1,1 +1,1 @@
-its a nice repo
+its a nice repositiry
